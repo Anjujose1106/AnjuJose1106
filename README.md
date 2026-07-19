@@ -11,7 +11,7 @@ Skills:
 
 Currently working in healthcare while building data analytics projects and seeking opportunities as a Data Analyst in the UK.
 
-📍 Birmingham, UK
+📍 Bristol, UK
 
 🔗 LinkedIn:
 www.linkedin.com/in/anjujose06
